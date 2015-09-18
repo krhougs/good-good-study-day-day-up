@@ -1,1 +1,9 @@
-# good-good-study-day-day-up
+TCF-DAP 考不到 B2 就药丸 QAQ……
+
+就靠这货阻止我手贱去 kill time 了 QAQ……
+
+嗯……
+
+祝我战法成功！
+
+Marchez!
